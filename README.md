@@ -1,4 +1,4 @@
-# portofolio Naufal Arrahman
+# Portofolio Naufal Arrahman
 
 ![Image](https://github.com/user-attachments/assets/fad2cc13-ed68-43c5-b316-ba3272241c6f)
 ![Image](https://github.com/user-attachments/assets/c0475309-1810-46db-99c3-9782475e33d4)
